@@ -24,6 +24,6 @@
 
 > Uncoerced. Alongside free market. Work that perhaps the free market does not find value in, like going to school, infrastructure and reconstruction, creating content, organic community gardens, training programs, teaching, rebuilding schools, summer camps.
 
-## Monopoly Busting or Democratization 
+## Tech Monopoly Partial Democratization Processes, or Busting
 
 > This would take higher priority if "Democratization" wasn't such a radical idea.
